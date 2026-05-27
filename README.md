@@ -1,2 +1,2 @@
 Integrantes:
-Miguel da Silva Rodriguês e Micolas Santos de Souza.2°DS.
+Miguel da Silva Rodriguês e Nicolas Santos de Souza.2°DS.
